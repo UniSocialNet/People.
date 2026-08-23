@@ -1,1 +1,2 @@
-- [(https://youtu.be/cMnWOJSMPNw)
+- [LinusTechTips Is Losing Thousands of Fans. Why?](https://youtu.be/cMnWOJSMPNw)
+- [
