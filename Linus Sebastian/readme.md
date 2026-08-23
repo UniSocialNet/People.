@@ -1,2 +1,2 @@
 - [LinusTechTips Is Losing Thousands of Fans. Why?](https://youtu.be/cMnWOJSMPNw)
-- [
+- [Why I left Linus Tech Tips](
