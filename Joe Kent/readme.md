@@ -1,1 +1,2 @@
 - [Joe Kent: Escalation Against Iran & Russia — We Have Entered the Early Stages of World War III](https://youtu.be/psMoCoh8hm0)
+- [If YOU Think Joe Kent is a Fraud, You NEED To Watch This](
