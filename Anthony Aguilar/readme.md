@@ -1,2 +1,3 @@
 - [Anthony Aguilar: Iran Baited the U.S. & Is Bleeding It Dry](https://youtu.be/jjKtP_xpDhY)
 - [IRAN FIRES NEW UNINTERCEPTABLE MISSILE AT USS WASHINGTON – w/ Lt. Col. Anthony Aguilar](https://www.youtube.com/live/ud33JhSgA_c)
+- [Lt. Col. Anthony Aguilar: Iran Says It DAMAGED a U.S. Aircraft Carrier](https://www.youtube.com/live/AX7-aP4vZAE)
