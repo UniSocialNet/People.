@@ -1,1 +1,2 @@
-- [WE ARE ACTUALLY CONSIDERING NUKES ON IRAN - Col. Macgregor](
+- [WE ARE ACTUALLY CONSIDERING NUKES ON IRAN - Col. Macgregor](https://youtu.be/6oqJht0WiIg)
+- [
