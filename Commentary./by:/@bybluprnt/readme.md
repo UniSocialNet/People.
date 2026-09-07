@@ -5,4 +5,4 @@ https://m.youtube.com/@bybluprnt
 
 # Favorite:
 - [Prof. Jiang DOGWALKS MAGA Supporter After He Said "China is an oppressive dictatorship"(GETS HEATED)](https://youtu.be/tEWoUUnx-e0)
-- 
+- ["World Economy About to COLLAPSE Because of Israel" Jeffrey Sachs STUNNS Piers Morgan (HOLY SH*T)](https://youtu.be/jkcBhY8ddh4)
